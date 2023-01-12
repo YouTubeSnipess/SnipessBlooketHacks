@@ -1,0 +1,2 @@
+# SnipessBlooketHacks
+Blooket hacks
